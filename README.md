@@ -1,12 +1,8 @@
-I guess you , Typical kind of tech guy wanting to learn general knowledge of Coding with programming & Computer tricks! Have any new ideas I shouj
-I'm 28 years old currently! 
+I guess you personally would know if you knew huh? , Typical kind of tech guy wanting to learn general knowledge of Coding with programming & Computer tricks! Have any new ideas I should.
+I'm 28 years old currently! Time is flying just a solo kinda person currently. 
 I dream about having something  trust me thats why I didnt say nothing at ala good career.
-Please feemfree contacts out as long as no hickups!
-Looking for good resources, so please take a moment and von ideas, and ways to expand before going back to college!
-Fairly new not going to lie, so show me some things!
-I would like to build either a program  with scuessful useful tools and or make making it easier for anyone kike it shoud r
-
-<!---
-EdwardIrvin96/EdwardIrvin96 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+Please feel free to add or reach out as I wish to grow IT Personal contacts and experienced professionals. Quick and Egar learner. Education is the way to sucess if you decisre a future with goals!
+Looking for good resources, so please take a moment and help me with any ideas, and ways to expand before going back to college as I desire good Growth lack of education funds and help!
+Fairly new not going to lie, been years sense I actually was a achiveable successful guy on the web! 
+I would like to build either a program, software design something of such with scuessful useful tools and or make making it easier for anyone local to have better tools and access to any kind of program needed for software engignering!
+Shoot Me A FR ON DISCORD OR TELEGRAM! & Looking foward to meeting the community!
